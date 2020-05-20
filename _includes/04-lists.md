@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Utopia by Realists by Rutger Bregman
+* The Hitchhiker's Guide to the Galaxy by Douglas Adams
+* Parasite by Bong Joon-ho
+* Memories by Bong Joon-ho
